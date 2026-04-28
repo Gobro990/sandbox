@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-04-29 03:09 (IR Time)
+- 📥 **[اصول پخت قیمه برای رستوران و مجالس با شف کامران صبوری.mp4](https://github.com/Gobro990/sandbox/raw/main/dl/%D8%A7%D8%B5%D9%88%D9%84%20%D9%BE%D8%AE%D8%AA%20%D9%82%DB%8C%D9%85%D9%87%20%D8%A8%D8%B1%D8%A7%DB%8C%20%D8%B1%D8%B3%D8%AA%D9%88%D8%B1%D8%A7%D9%86%20%D9%88%20%D9%85%D8%AC%D8%A7%D9%84%D8%B3%20%D8%A8%D8%A7%20%D8%B4%D9%81%20%DA%A9%D8%A7%D9%85%D8%B1%D8%A7%D9%86%20%D8%B5%D8%A8%D9%88%D8%B1%DB%8C.mp4)**
+
+
 ### 📅 2026-04-29 03:07 (IR Time)
 - 📥 **[#زرشک_پلو#پلو#غذای_مجلسی#کامران_صبوری#kamransabouri.mp4](https://github.com/Gobro990/sandbox/raw/main/dl/%23%D8%B2%D8%B1%D8%B4%DA%A9_%D9%BE%D9%84%D9%88%23%D9%BE%D9%84%D9%88%23%D8%BA%D8%B0%D8%A7%DB%8C_%D9%85%D8%AC%D9%84%D8%B3%DB%8C%23%DA%A9%D8%A7%D9%85%D8%B1%D8%A7%D9%86_%D8%B5%D8%A8%D9%88%D8%B1%DB%8C%23kamransabouri.mp4)**
 
