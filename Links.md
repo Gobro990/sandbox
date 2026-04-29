@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-04-30 01:13 (IR Time)
+- 📥 **[فایروال چیست و چگونه کار میکند ؟ - دوره رایگان نتورک پلاس قسمت 30.mp4](https://github.com/Gobro990/sandbox/raw/main/dl/%D9%81%D8%A7%DB%8C%D8%B1%D9%88%D8%A7%D9%84%20%DA%86%DB%8C%D8%B3%D8%AA%20%D9%88%20%DA%86%DA%AF%D9%88%D9%86%D9%87%20%DA%A9%D8%A7%D8%B1%20%D9%85%DB%8C%DA%A9%D9%86%D8%AF%20%D8%9F%20-%20%D8%AF%D9%88%D8%B1%D9%87%20%D8%B1%D8%A7%DB%8C%DA%AF%D8%A7%D9%86%20%D9%86%D8%AA%D9%88%D8%B1%DA%A9%20%D9%BE%D9%84%D8%A7%D8%B3%20%D9%82%D8%B3%D9%85%D8%AA%2030.mp4)**
+
+
 ### 📅 2026-04-30 01:02 (IR Time)
 - 📥 **[شبکه چیست و معرفی انواع شبکه - دوره رایگان نتورک پلاس - قسمت اول.mp4](https://github.com/Gobro990/sandbox/raw/main/dl/%D8%B4%D8%A8%DA%A9%D9%87%20%DA%86%DB%8C%D8%B3%D8%AA%20%D9%88%20%D9%85%D8%B9%D8%B1%D9%81%DB%8C%20%D8%A7%D9%86%D9%88%D8%A7%D8%B9%20%D8%B4%D8%A8%DA%A9%D9%87%20-%20%D8%AF%D9%88%D8%B1%D9%87%20%D8%B1%D8%A7%DB%8C%DA%AF%D8%A7%D9%86%20%D9%86%D8%AA%D9%88%D8%B1%DA%A9%20%D9%BE%D9%84%D8%A7%D8%B3%20-%20%D9%82%D8%B3%D9%85%D8%AA%20%D8%A7%D9%88%D9%84.mp4)**
 
