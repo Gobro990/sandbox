@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-04-30 02:11 (IR Time)
+- 📥 **[Papaoutai (Afro Soul) - Stromae ｜ Afro Beats ｜ Tiktok Trending Version.mp4](https://github.com/Gobro990/sandbox/raw/main/dl/Papaoutai%20%28Afro%20Soul%29%20-%20Stromae%20%EF%BD%9C%20Afro%20Beats%20%EF%BD%9C%20Tiktok%20Trending%20Version.mp4)**
+
+
 ### 📅 2026-04-30 01:45 (IR Time)
 - 📥 **[اقوى دويتو قائد حلمي وعزيز ويسي ｜ دبكة كردية هنار هنار.mp4](https://github.com/Gobro990/sandbox/raw/main/dl/%D8%A7%D9%82%D9%88%D9%89%20%D8%AF%D9%88%D9%8A%D8%AA%D9%88%20%D9%82%D8%A7%D8%A6%D8%AF%20%D8%AD%D9%84%D9%85%D9%8A%20%D9%88%D8%B9%D8%B2%D9%8A%D8%B2%20%D9%88%D9%8A%D8%B3%D9%8A%20%EF%BD%9C%20%D8%AF%D8%A8%D9%83%D8%A9%20%D9%83%D8%B1%D8%AF%D9%8A%D8%A9%20%D9%87%D9%86%D8%A7%D8%B1%20%D9%87%D9%86%D8%A7%D8%B1.mp4)**
 
