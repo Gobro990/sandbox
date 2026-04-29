@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-04-30 01:45 (IR Time)
+- 📥 **[اقوى دويتو قائد حلمي وعزيز ويسي ｜ دبكة كردية هنار هنار.mp4](https://github.com/Gobro990/sandbox/raw/main/dl/%D8%A7%D9%82%D9%88%D9%89%20%D8%AF%D9%88%D9%8A%D8%AA%D9%88%20%D9%82%D8%A7%D8%A6%D8%AF%20%D8%AD%D9%84%D9%85%D9%8A%20%D9%88%D8%B9%D8%B2%D9%8A%D8%B2%20%D9%88%D9%8A%D8%B3%D9%8A%20%EF%BD%9C%20%D8%AF%D8%A8%D9%83%D8%A9%20%D9%83%D8%B1%D8%AF%D9%8A%D8%A9%20%D9%87%D9%86%D8%A7%D8%B1%20%D9%87%D9%86%D8%A7%D8%B1.mp4)**
+
+
 ### 📅 2026-04-30 01:42 (IR Time)
 - 📥 **[Hamay Nergz - Bo Be Law Chawa Kalana (Lyrics) ｜ حەمەی نێرگز - بۆ بێ لەو چاوە کاڵانە.mp4](https://github.com/Gobro990/sandbox/raw/main/dl/Hamay%20Nergz%20-%20Bo%20Be%20Law%20Chawa%20Kalana%20%28Lyrics%29%20%EF%BD%9C%20%D8%AD%DB%95%D9%85%DB%95%DB%8C%20%D9%86%DB%8E%D8%B1%DA%AF%D8%B2%20-%20%D8%A8%DB%86%20%D8%A8%DB%8E%20%D9%84%DB%95%D9%88%20%DA%86%D8%A7%D9%88%DB%95%20%DA%A9%D8%A7%DA%B5%D8%A7%D9%86%DB%95.mp4)**
 
