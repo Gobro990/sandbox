@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-04-30 02:30 (IR Time)
+- 📥 **[Olivia Rodrigo - Traitor.mp4](https://github.com/Gobro990/sandbox/raw/main/dl/Olivia%20Rodrigo%20-%20Traitor.mp4)**
+
+
 ### 📅 2026-04-30 02:25 (IR Time)
 - 📥 **[Olivia Rodrigo - All I Want (Official Video).mp4](https://github.com/Gobro990/sandbox/raw/main/dl/Olivia%20Rodrigo%20-%20All%20I%20Want%20%28Official%20Video%29.mp4)**
 
