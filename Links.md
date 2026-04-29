@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-04-30 01:42 (IR Time)
+- 📥 **[Hamay Nergz - Bo Be Law Chawa Kalana (Lyrics) ｜ حەمەی نێرگز - بۆ بێ لەو چاوە کاڵانە.mp4](https://github.com/Gobro990/sandbox/raw/main/dl/Hamay%20Nergz%20-%20Bo%20Be%20Law%20Chawa%20Kalana%20%28Lyrics%29%20%EF%BD%9C%20%D8%AD%DB%95%D9%85%DB%95%DB%8C%20%D9%86%DB%8E%D8%B1%DA%AF%D8%B2%20-%20%D8%A8%DB%86%20%D8%A8%DB%8E%20%D9%84%DB%95%D9%88%20%DA%86%D8%A7%D9%88%DB%95%20%DA%A9%D8%A7%DA%B5%D8%A7%D9%86%DB%95.mp4)**
+
+
 ### 📅 2026-04-30 01:38 (IR Time)
 - 📥 **[شعر محبوب مولانا： نگفتمت مرو آنجا ｜ اجرای احساسی مل ｜ Rumi - Persian Poetry.mp4](https://github.com/Gobro990/sandbox/raw/main/dl/%D8%B4%D8%B9%D8%B1%20%D9%85%D8%AD%D8%A8%D9%88%D8%A8%20%D9%85%D9%88%D9%84%D8%A7%D9%86%D8%A7%EF%BC%9A%20%D9%86%DA%AF%D9%81%D8%AA%D9%85%D8%AA%20%D9%85%D8%B1%D9%88%20%D8%A2%D9%86%D8%AC%D8%A7%20%EF%BD%9C%20%D8%A7%D8%AC%D8%B1%D8%A7%DB%8C%20%D8%A7%D8%AD%D8%B3%D8%A7%D8%B3%DB%8C%20%D9%85%D9%84%20%EF%BD%9C%20Rumi%20-%20Persian%20Poetry.mp4)**
 
