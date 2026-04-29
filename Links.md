@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-04-30 00:49 (IR Time)
+- 📥 **[HEY MAMA (Lyric).mp4](https://github.com/Gobro990/sandbox/raw/main/dl/HEY%20MAMA%20%28Lyric%29.mp4)**
+
+
 ### 📅 2026-04-30 00:35 (IR Time)
 - 📥 **[گۆرانی نارین - مامۆستا هۆمەر دزەی (جەز کوردی) vintage Kurdish Jazz⧸classic music - Narin.mp4](https://github.com/Gobro990/sandbox/raw/main/dl/%DA%AF%DB%86%D8%B1%D8%A7%D9%86%DB%8C%20%D9%86%D8%A7%D8%B1%DB%8C%D9%86%20-%20%D9%85%D8%A7%D9%85%DB%86%D8%B3%D8%AA%D8%A7%20%D9%87%DB%86%D9%85%DB%95%D8%B1%20%D8%AF%D8%B2%DB%95%DB%8C%20%28%D8%AC%DB%95%D8%B2%20%DA%A9%D9%88%D8%B1%D8%AF%DB%8C%29%20vintage%20Kurdish%20Jazz%E2%A7%B8classic%20music%20-%20Narin.mp4)**
 
