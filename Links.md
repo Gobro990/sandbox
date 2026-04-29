@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-04-30 02:18 (IR Time)
+- 📥 **[Ella Langley - Choosin' Texas (Official Lyric Video).mp4](https://github.com/Gobro990/sandbox/raw/main/dl/Ella%20Langley%20-%20Choosin%27%20Texas%20%28Official%20Lyric%20Video%29.mp4)**
+
+
 ### 📅 2026-04-30 02:15 (IR Time)
 - 📥 **[homar dzai _ chanden garam lasharan.mp4](https://github.com/Gobro990/sandbox/raw/main/dl/homar%20dzai%20_%20chanden%20garam%20lasharan.mp4)**
 
