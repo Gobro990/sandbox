@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-04-30 17:42 (IR Time)
+- 📥 **[simge - Yankı - ترانه یانکی سیمگه با زیرنویس فارسی و ترکی استانبولی.mp4](https://github.com/Gobro990/sandbox/raw/main/dl/simge%20-%20Yank%C4%B1%20-%20%D8%AA%D8%B1%D8%A7%D9%86%D9%87%20%DB%8C%D8%A7%D9%86%DA%A9%DB%8C%20%D8%B3%DB%8C%D9%85%DA%AF%D9%87%20%D8%A8%D8%A7%20%D8%B2%DB%8C%D8%B1%D9%86%D9%88%DB%8C%D8%B3%20%D9%81%D8%A7%D8%B1%D8%B3%DB%8C%20%D9%88%20%D8%AA%D8%B1%DA%A9%DB%8C%20%D8%A7%D8%B3%D8%AA%D8%A7%D9%86%D8%A8%D9%88%D9%84%DB%8C.mp4)**
+
+
 ### 📅 2026-04-30 02:49 (IR Time)
 - 📥 **[پرنده ｜ اجرای متفاوت و جذاب ｜ کنسرت ｜ Parandeh - Live Performance.mp4](https://github.com/Gobro990/sandbox/raw/main/dl/%D9%BE%D8%B1%D9%86%D8%AF%D9%87%20%EF%BD%9C%20%D8%A7%D8%AC%D8%B1%D8%A7%DB%8C%20%D9%85%D8%AA%D9%81%D8%A7%D9%88%D8%AA%20%D9%88%20%D8%AC%D8%B0%D8%A7%D8%A8%20%EF%BD%9C%20%DA%A9%D9%86%D8%B3%D8%B1%D8%AA%20%EF%BD%9C%20Parandeh%20-%20Live%20Performance.mp4)**
 
