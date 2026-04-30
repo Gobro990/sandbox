@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-04-30 19:32 (IR Time)
+- 📥 **[KURMANCİ Here Gule ｜ Kurdish - Persian Mix ｜ آهنگ ترند جدید کردی و فارسی دلی من پورخوشه.mp4](https://github.com/Gobro990/sandbox/raw/main/dl/KURMANCI%CC%87%20Here%20Gule%20%EF%BD%9C%20Kurdish%20-%20Persian%20Mix%20%EF%BD%9C%20%D8%A2%D9%87%D9%86%DA%AF%20%D8%AA%D8%B1%D9%86%D8%AF%20%D8%AC%D8%AF%DB%8C%D8%AF%20%DA%A9%D8%B1%D8%AF%DB%8C%20%D9%88%20%D9%81%D8%A7%D8%B1%D8%B3%DB%8C%20%D8%AF%D9%84%DB%8C%20%D9%85%D9%86%20%D9%BE%D9%88%D8%B1%D8%AE%D9%88%D8%B4%D9%87.mp4)**
+
+
 ### 📅 2026-04-30 17:42 (IR Time)
 - 📥 **[simge - Yankı - ترانه یانکی سیمگه با زیرنویس فارسی و ترکی استانبولی.mp4](https://github.com/Gobro990/sandbox/raw/main/dl/simge%20-%20Yank%C4%B1%20-%20%D8%AA%D8%B1%D8%A7%D9%86%D9%87%20%DB%8C%D8%A7%D9%86%DA%A9%DB%8C%20%D8%B3%DB%8C%D9%85%DA%AF%D9%87%20%D8%A8%D8%A7%20%D8%B2%DB%8C%D8%B1%D9%86%D9%88%DB%8C%D8%B3%20%D9%81%D8%A7%D8%B1%D8%B3%DB%8C%20%D9%88%20%D8%AA%D8%B1%DA%A9%DB%8C%20%D8%A7%D8%B3%D8%AA%D8%A7%D9%86%D8%A8%D9%88%D9%84%DB%8C.mp4)**
 
