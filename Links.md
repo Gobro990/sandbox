@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-05-02 00:18 (IR Time)
+- 📥 **[صافی هیرانی (دڵ لەبەر دەردی فیراقی یار).mp4](https://github.com/Gobro990/sandbox/raw/main/dl/%D8%B5%D8%A7%D9%81%DB%8C%20%D9%87%DB%8C%D8%B1%D8%A7%D9%86%DB%8C%20%28%D8%AF%DA%B5%20%D9%84%DB%95%D8%A8%DB%95%D8%B1%20%D8%AF%DB%95%D8%B1%D8%AF%DB%8C%20%D9%81%DB%8C%D8%B1%D8%A7%D9%82%DB%8C%20%DB%8C%D8%A7%D8%B1%29.mp4)**
+
+
 ### 📅 2026-05-02 00:14 (IR Time)
 - 📥 **[وەفایی ＂ئاوایە ڕێگەی ئاشقان＂ (قەوالی) (Kurdish Qawwali).mp4](https://github.com/Gobro990/sandbox/raw/main/dl/%D9%88%DB%95%D9%81%D8%A7%DB%8C%DB%8C%20%EF%BC%82%D8%A6%D8%A7%D9%88%D8%A7%DB%8C%DB%95%20%DA%95%DB%8E%DA%AF%DB%95%DB%8C%20%D8%A6%D8%A7%D8%B4%D9%82%D8%A7%D9%86%EF%BC%82%20%28%D9%82%DB%95%D9%88%D8%A7%D9%84%DB%8C%29%20%28Kurdish%20Qawwali%29.mp4)**
 
