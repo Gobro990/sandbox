@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-05-02 00:35 (IR Time)
+- 📥 **[فەلەک ڕاست بڕۆ (نوێکراوەتەوە).mp4](https://github.com/Gobro990/sandbox/raw/main/dl/%D9%81%DB%95%D9%84%DB%95%DA%A9%20%DA%95%D8%A7%D8%B3%D8%AA%20%D8%A8%DA%95%DB%86%20%28%D9%86%D9%88%DB%8E%DA%A9%D8%B1%D8%A7%D9%88%DB%95%D8%AA%DB%95%D9%88%DB%95%29.mp4)**
+
+
 ### 📅 2026-05-02 00:31 (IR Time)
 - 📥 **[دەروێش عەبدوڵا (دەنگی نوێکراوەتەوە).mp4](https://github.com/Gobro990/sandbox/raw/main/dl/%D8%AF%DB%95%D8%B1%D9%88%DB%8E%D8%B4%20%D8%B9%DB%95%D8%A8%D8%AF%D9%88%DA%B5%D8%A7%20%28%D8%AF%DB%95%D9%86%DA%AF%DB%8C%20%D9%86%D9%88%DB%8E%DA%A9%D8%B1%D8%A7%D9%88%DB%95%D8%AA%DB%95%D9%88%DB%95%29.mp4)**
 
