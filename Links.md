@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-05-02 00:09 (IR Time)
+- 📥 **[ئازار کۆیی ＂کەنار＂ (هۆنراوەی نالی شاعیر).mp4](https://github.com/Gobro990/sandbox/raw/main/dl/%D8%A6%D8%A7%D8%B2%D8%A7%D8%B1%20%DA%A9%DB%86%DB%8C%DB%8C%20%EF%BC%82%DA%A9%DB%95%D9%86%D8%A7%D8%B1%EF%BC%82%20%28%D9%87%DB%86%D9%86%D8%B1%D8%A7%D9%88%DB%95%DB%8C%20%D9%86%D8%A7%D9%84%DB%8C%20%D8%B4%D8%A7%D8%B9%DB%8C%D8%B1%29.mp4)**
+
+
 ### 📅 2026-05-02 00:03 (IR Time)
 - 📥 **[دەروێش عەبدوڵا ＂فەرهاد - بولبول＂ (بەشی کۆتایی - نوێکراوە).mp4](https://github.com/Gobro990/sandbox/raw/main/dl/%D8%AF%DB%95%D8%B1%D9%88%DB%8E%D8%B4%20%D8%B9%DB%95%D8%A8%D8%AF%D9%88%DA%B5%D8%A7%20%EF%BC%82%D9%81%DB%95%D8%B1%D9%87%D8%A7%D8%AF%20-%20%D8%A8%D9%88%D9%84%D8%A8%D9%88%D9%84%EF%BC%82%20%28%D8%A8%DB%95%D8%B4%DB%8C%20%DA%A9%DB%86%D8%AA%D8%A7%DB%8C%DB%8C%20-%20%D9%86%D9%88%DB%8E%DA%A9%D8%B1%D8%A7%D9%88%DB%95%29.mp4)**
 
