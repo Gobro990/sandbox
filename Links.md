@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-05-01 14:45 (IR Time)
+- 📥 **[Çekdar – Ez Kurdim ｜ Serê Min Bilind e ｜ Strana Neteweyî ya Kurdî.mp4](https://github.com/Gobro990/sandbox/raw/main/dl/%C3%87ekdar%20%E2%80%93%20Ez%20Kurdim%20%EF%BD%9C%20Ser%C3%AA%20Min%20Bilind%20e%20%EF%BD%9C%20Strana%20Netewey%C3%AE%20ya%20Kurd%C3%AE.mp4)**
+
+
 ### 📅 2026-04-30 19:32 (IR Time)
 - 📥 **[KURMANCİ Here Gule ｜ Kurdish - Persian Mix ｜ آهنگ ترند جدید کردی و فارسی دلی من پورخوشه.mp4](https://github.com/Gobro990/sandbox/raw/main/dl/KURMANCI%CC%87%20Here%20Gule%20%EF%BD%9C%20Kurdish%20-%20Persian%20Mix%20%EF%BD%9C%20%D8%A2%D9%87%D9%86%DA%AF%20%D8%AA%D8%B1%D9%86%D8%AF%20%D8%AC%D8%AF%DB%8C%D8%AF%20%DA%A9%D8%B1%D8%AF%DB%8C%20%D9%88%20%D9%81%D8%A7%D8%B1%D8%B3%DB%8C%20%D8%AF%D9%84%DB%8C%20%D9%85%D9%86%20%D9%BE%D9%88%D8%B1%D8%AE%D9%88%D8%B4%D9%87.mp4)**
 
