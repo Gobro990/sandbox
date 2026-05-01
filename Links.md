@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-05-02 00:43 (IR Time)
+- 📥 **[ئازار و بانە ＂گوڵەکەم ڕۆ دڵەکەم ڕۆ＂.mp4](https://github.com/Gobro990/sandbox/raw/main/dl/%D8%A6%D8%A7%D8%B2%D8%A7%D8%B1%20%D9%88%20%D8%A8%D8%A7%D9%86%DB%95%20%EF%BC%82%DA%AF%D9%88%DA%B5%DB%95%DA%A9%DB%95%D9%85%20%DA%95%DB%86%20%D8%AF%DA%B5%DB%95%DA%A9%DB%95%D9%85%20%DA%95%DB%86%EF%BC%82.mp4)**
+
+
 ### 📅 2026-05-02 00:35 (IR Time)
 - 📥 **[فەلەک ڕاست بڕۆ (نوێکراوەتەوە).mp4](https://github.com/Gobro990/sandbox/raw/main/dl/%D9%81%DB%95%D9%84%DB%95%DA%A9%20%DA%95%D8%A7%D8%B3%D8%AA%20%D8%A8%DA%95%DB%86%20%28%D9%86%D9%88%DB%8E%DA%A9%D8%B1%D8%A7%D9%88%DB%95%D8%AA%DB%95%D9%88%DB%95%29.mp4)**
 
