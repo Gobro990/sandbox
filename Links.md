@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-05-01 18:36 (IR Time)
+- 📥 **[ریمیکس ＂دلگیر ＂  (دیپ هاوس ) ｜ Parham Salimi Remix.mp4](https://github.com/Gobro990/sandbox/raw/main/dl/%D8%B1%DB%8C%D9%85%DB%8C%DA%A9%D8%B3%20%EF%BC%82%D8%AF%D9%84%DA%AF%DB%8C%D8%B1%20%EF%BC%82%20%20%28%D8%AF%DB%8C%D9%BE%20%D9%87%D8%A7%D9%88%D8%B3%20%29%20%EF%BD%9C%20Parham%20Salimi%20Remix.mp4)**
+
+
 ### 📅 2026-05-01 14:45 (IR Time)
 - 📥 **[Çekdar – Ez Kurdim ｜ Serê Min Bilind e ｜ Strana Neteweyî ya Kurdî.mp4](https://github.com/Gobro990/sandbox/raw/main/dl/%C3%87ekdar%20%E2%80%93%20Ez%20Kurdim%20%EF%BD%9C%20Ser%C3%AA%20Min%20Bilind%20e%20%EF%BD%9C%20Strana%20Netewey%C3%AE%20ya%20Kurd%C3%AE.mp4)**
 
