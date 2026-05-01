@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-05-02 00:59 (IR Time)
+- 📥 **[من بی‌خود و تو بی‌خود ｜ مولانا (Rumi) – Persian Sufi Poetry Music.mp4](https://github.com/Gobro990/sandbox/raw/main/dl/%D9%85%D9%86%20%D8%A8%DB%8C%E2%80%8C%D8%AE%D9%88%D8%AF%20%D9%88%20%D8%AA%D9%88%20%D8%A8%DB%8C%E2%80%8C%D8%AE%D9%88%D8%AF%20%EF%BD%9C%20%D9%85%D9%88%D9%84%D8%A7%D9%86%D8%A7%20%28Rumi%29%20%E2%80%93%20Persian%20Sufi%20Poetry%20Music.mp4)**
+
+
 ### 📅 2026-05-02 00:51 (IR Time)
 - 📥 **[حەیران دەرێم.......mp4](https://github.com/Gobro990/sandbox/raw/main/dl/%D8%AD%DB%95%DB%8C%D8%B1%D8%A7%D9%86%20%D8%AF%DB%95%D8%B1%DB%8E%D9%85.......mp4)**
 
