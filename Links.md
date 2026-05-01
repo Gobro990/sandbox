@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-05-02 01:59 (IR Time)
+- 📥 **[🎵 Hera Gule - هرا كوله 🌹 ｜ أجمل أغنية كوردية Original Song 🔥 ｜ New Kurdish  ديوو Song 2026 🎶.mp4](https://github.com/Gobro990/sandbox/raw/main/dl/%F0%9F%8E%B5%20Hera%20Gule%20-%20%D9%87%D8%B1%D8%A7%20%D9%83%D9%88%D9%84%D9%87%20%F0%9F%8C%B9%20%EF%BD%9C%20%D8%A3%D8%AC%D9%85%D9%84%20%D8%A3%D8%BA%D9%86%D9%8A%D8%A9%20%D9%83%D9%88%D8%B1%D8%AF%D9%8A%D8%A9%20Original%20Song%20%F0%9F%94%A5%20%EF%BD%9C%20New%20Kurdish%20%20%D8%AF%D9%8A%D9%88%D9%88%20Song%202026%20%F0%9F%8E%B6.mp4)**
+
+
 ### 📅 2026-05-02 01:56 (IR Time)
 - 📥 **[ئەمین شنۆیی ＂موناجات＂.mp4](https://github.com/Gobro990/sandbox/raw/main/dl/%D8%A6%DB%95%D9%85%DB%8C%D9%86%20%D8%B4%D9%86%DB%86%DB%8C%DB%8C%20%EF%BC%82%D9%85%D9%88%D9%86%D8%A7%D8%AC%D8%A7%D8%AA%EF%BC%82.mp4)**
 
