@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-05-04 00:10 (IR Time)
+- 📥 **[masterdnsvpn-HN-1.2.2-arm64-v8a-release.apk](https://github.com/Gobro990/sandbox/raw/main/dl/masterdnsvpn-HN-1.2.2-arm64-v8a-release.apk)**
+
+
 ### 📅 2026-05-03 23:59 (IR Time)
 - 📥 **[v1.2.2](https://github.com/Gobro990/sandbox/raw/main/dl/v1.2.2)**
 
