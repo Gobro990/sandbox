@@ -2,6 +2,10 @@
  Click on any link below to start downloading directly.
 
 
+### 📅 2026-05-03 23:59 (IR Time)
+- 📥 **[v1.2.2](https://github.com/Gobro990/sandbox/raw/main/dl/v1.2.2)**
+
+
 ### 📅 2026-05-03 02:48 (IR Time)
 - 📥 **[thefeed-android-v0.14.0-rc2-arm64-v8a.apk](https://github.com/Gobro990/sandbox/raw/main/dl/thefeed-android-v0.14.0-rc2-arm64-v8a.apk)**
 
